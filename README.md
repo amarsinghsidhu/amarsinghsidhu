@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @amarsinghsidhu
-- 👀 I’m interested in making an Operating system, a programming language & a sort of compiler.
+- 👀 I’m interested in making an an AI, an Operating system, a programming language & a sort of compiler.
 - 🌱 I’m currently learning coding in BCA from IGNOU.
 - 💞️ I’m not yet looking to collaborate.
 - 📫 Instagram: @amar_singh.sidhu @insightexperience
