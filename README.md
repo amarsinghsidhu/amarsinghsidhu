@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding in BCA from IGNOU.
 - 💞️ I’m not yet looking to collaborate.
 - 📫 Instagram: @amar_singh.sidhu @insightexperience
-- 😄 Pronouns: ਸੁਣਿਐ ਲਾਗੈ ਸਹਜਿ ਧਿਆਨੁ।।
+- 😄 Pronouns: A mind and a body.
 - ⚡ Meditation is best practice.
 
 <!---
